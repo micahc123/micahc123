@@ -1,2 +1,2 @@
-Micah Chen
+Micah Chen \n
 HKIS 27
