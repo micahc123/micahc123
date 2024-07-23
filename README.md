@@ -1,1 +1,2 @@
-hi
+Micah Chen
+HKIS 27
